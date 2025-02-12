@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me: Preferably, on Github. Otherwise, email jasper.ohue@icloud.com.
 - I'm invisible.
+- Although I was born visible, I am now transparent.
 - 😄 Pronouns: who/where
 - ⚡ Fun fact: The fear of long words is called Hippopotomonstrosesquippedaliophobia. More facts: https://tinyurl.com/jamrp2dr
 
